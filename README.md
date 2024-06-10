@@ -1,4 +1,6 @@
-## Eu nao gosto de alura e isso deveria ser retirado das escolas publicas com todo o respeito
+## eu nao gosto de alura e isso deveria ser retirado das escolas publicas com todo o respeito
+
+enzo gamer 2A
 
 <!--
 **enzosuperpro/enzosuperpro** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
